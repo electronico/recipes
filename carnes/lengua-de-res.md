@@ -1,0 +1,1 @@
+Se pone a cocer con cebolla y laurel a fuego medio por unas 3 o 4 horas, y se rebana o pica ya que esta suavecita para tacos o alguna comida.
