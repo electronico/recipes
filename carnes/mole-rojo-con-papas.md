@@ -1,0 +1,6 @@
+Freir bisteces en pedacitos
+ 
+Se le agregan papas picadas en cuadritos (crudas)
+ 
+Asar en comal en chile chilacate/guajillo (unos 6 chiles) mas chiles de arbol
+Se muele con clavo, pimienta y poquito ajo y knor suiza, jugo de chile jalapenio y un chile, tomates verdes crudos y uno o dos jitomates.
