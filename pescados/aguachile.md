@@ -1,0 +1,7 @@
+Se compra camaron, pulpo y cangrejo
+
+Se pone  en limon el camaron
+Se pone a cocer el pulpo
+Se hace la salsa ya que este todo listo, es con jugo de limon, cilantro, serrano y un par de habaneros
+
+Se pica cebolla y el pepino en el recipiente, se agrega el camaron, se agrega el pulpo picado y se desmenuza el cangrejo
