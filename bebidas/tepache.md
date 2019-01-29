@@ -1,0 +1,3 @@
+Se corta la cascara de la pi~a y se lava bien, dejarle algo de fruta para que le de mas sabor.
+
+Se pone en agua con piloncillo y se deja reposar por dias, usualmente a partir del 3er o 4to ya esta listo
