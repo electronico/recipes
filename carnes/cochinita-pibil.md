@@ -1,0 +1,7 @@
+Cocer la carne de puerco (pierna, aleta) con sal, laurel y cebolla.
+
+Se muelen 3 o 4 jitomates, chile de arbol al gusto, mirasol o guajillo 5 o 6, clavo, pimienta, ajo, un pedacito de hoja de laurel, jugo de naranja agria, un chorro, y achiote 1.5 cm, sal y knor suiza.
+
+Se vierte a la carne desmenusada que esta friendose en aceite y cebolla.
+
+Se sirve con cebolla desflemada
