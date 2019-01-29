@@ -1,0 +1,1 @@
+Espaguethi cocido normal, y se pone  con mantequilla en la cazuela y se le pone una salsa con una barra de queso crema filadelfia, una salsa de chile poblano, 1 o 2 chiles poblanos en rajas sin semillas, agua y knor suiza.
