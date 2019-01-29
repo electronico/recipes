@@ -1,0 +1,24 @@
+Cocer carne sal cebolla y laurel
+Salsa1: cocer Jitomate con mejorana, guajillo,ajo, clavo, pimienta, laurel, chile de arbol.
+Salsa2: chilacate/guajillo/clavo, pimienta, oregano, ajo, laurel (6 jitomates) podira tener algunos chiles de arbol. Tambien tomillo/ajonjoli.
+Para torta de camaron la salsa es parecida, solo se le pone cilantro al final en la salsa cociendo.
+
+Otra receta es, adobo:
+9 chiles guajillos
+2 pasilla o 1 grande
+2 chipotles secos
+2 dientes de ajo
+Comino, una pisca
+Clavo, una pisca
+Pimienta negra, una pisca
+2 o 3 hojas de laurel
+Un triángulo de chocolate
+Rajita de canela
+
+Todo a cocer, en 2 o 3 tazas de agua, 20 minutos.
+
+Mientras se deja la carne a cocer en agua, hasta cubrirla, con sal.
+
+Se muele y cuela el adobo, y se vierte a la carne.
+
+Se ponen a cocer 5 o 6 jitomates, hasta que estén  bien cocidos, se pelan y muelen con orégano, 3 piscas, se le vierte a la carne con adobo, y agregar el agua donde se cocieron los jitomates.
