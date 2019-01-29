@@ -1,0 +1,4 @@
+Moler el camaron seco
+Batir huevos (3 claras mas una o dos yemas)
+Moler chilacate, chile de arbol, clavo, pimienta, ajo mas 2 o 3 jitomates, knor suiza y se frie colado
+Se ponen ramas de cilantro y nopales
