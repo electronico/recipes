@@ -1,0 +1,5 @@
+Si tienes plátanos muy maduros, de esos que ya se pasaron jaja pues úsalos. Los trituras con la mano o un ternedor
+Y por cada 2 plátanos le pones 2 tazas de hojuelitas de avena
+Esa es la masa. Y ya agrégale lo que quieras a la masa. Arandanos...chocolate en trozos
+Y en una cacerola pon las bolitas separadas por 5 cm. Y las aplanas para que te queden asi grandes
+Y ya. Las metes al horno a 180°
