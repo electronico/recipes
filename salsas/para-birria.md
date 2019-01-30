@@ -1,1 +1,4 @@
-Chile normal, una pimienta sal y eso es el chile para la birria.
+
+- Chile de arbol, al gusto.
+- una pimienta sal.
+- con poquita agua, todo se licua, queda una salsa para birria.

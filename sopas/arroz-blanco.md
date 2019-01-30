@@ -1,3 +1,3 @@
-Se pone a freir el arroz con mantequilla, ajo y cebolla.
-Se deja freir hasta que se ponga transparente
-Se le ponen dos tazas de agua, knor suiza/sal y se deja a fuego lento y tapado
+- Se pone a freir el arroz con mantequilla, ajo y cebolla.
+- Se deja freir hasta que se ponga transparente.
+- Se le ponen dos tazas de agua, knor suiza/sal y se deja a fuego lento y tapado.

@@ -1,11 +1,6 @@
-  
-Picadillo es mas caldoso, y el mole rojo con papas es con menos agua
- 
-Carne cocida con sal y cebolla en cazuela aparte
- 
-Freir en otra cazuela cebolla y tomate partidos
-Echarselo (tomate y cebolla antes del caldo a la carne)
- 
-Moler el chile guajillo/chilacate con 3 tomates, 1 jitomate, ajo, Pimienta y clavo
-Colar y echarselo a al carne
- 
+- Picadillo es mas caldoso, y el mole rojo con papas es con menos agua.
+- Carne cocida con sal y cebolla en cazuela aparte.
+- Freir en otra cazuela cebolla y tomate partidos.
+- Echarselo (tomate y cebolla antes del caldo a la carne).
+- Moler el chile guajillo/chilacate con 3 tomates, 1 jitomate, ajo, Pimienta y clavo.
+- Colar y echarselo a al carne.

@@ -1,3 +1,5 @@
-Chile mirasol, 10
-5 jitomates
-Chiles de arbol al gusto
+- Chile mirasol, 10
+- 5 jitomates
+- Chiles de arbol al gusto
+- Se cocen en agua, se licua.
+- Se puede usar para varias comidas, una salsa de adobo basica.

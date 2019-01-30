@@ -1,3 +1,2 @@
-Se muele en crudo el chilacate con mirasol, clavo, pimienta, ajo con jitomate crudo, y se agrega a la carne.
-
-Las verdolagas se sancochan y ya cocidas se le pone al mole
+- Se muele en crudo el chilacate con mirasol, clavo, pimienta, ajo con jitomate crudo, y se agrega a la carne.
+- Las verdolagas se sancochan y ya cocidas se le pone al mole

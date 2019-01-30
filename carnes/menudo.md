@@ -1,2 +1,3 @@
-Cocer la carne con cebolla, ajo y hueso blanco
-Cuendo este terminandise de cocer, agregar colado chilacate con agua hirviendo molido
+- La carne usualmente se conoce como tripe en USA, en Uwajimaya se consigue y ya esta limpia.
+- Cocer la carne con cebolla, ajo yerbabuena y hueso blanco.
+- Cuendo este terminandise de cocer, agregar colado chilacate con agua hirviendo molido.
